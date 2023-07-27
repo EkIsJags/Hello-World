@@ -8,5 +8,10 @@ my favourite subjects are mainly: <br>   1. Mat181/mat282
 
 I heard github is used in the real life world so i am very excited to do a little real life work for one of our assignments😄
 
+### i have 4 jobs to build up my CV for one day when i get a real job.
+- I do bookkeaping for IUM and My moms business on a monthy bases
+- I do private tutoring for some people.
+- I also tend to help with advertising for a extra class business
+
 [^1]: This is so far page 1.
                             
